@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on My Portfolio
 - 🌱 I’m currently learning frontend development
-- 👯 I’m looking to collaborate on diverse projects
+- 👯 I’m looking to collaborate on different creative projects!
 - 📫 How to reach me: www.linkedin.com/in/gayathri-sankar-3b5828259/
 - 😄 Pronouns: she/her
 
